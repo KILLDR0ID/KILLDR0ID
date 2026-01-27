@@ -1,16 +1,46 @@
-## Hi there 👋
+HI , THERE. ! 
+WELCOME TO KILLDR0ID'S/ SEBBY'Z READ ME. !
 
-<!--
-**KILLDR0ID/KILLDR0ID** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+WE DON'T HAVE MUCH TO PUT SO IN A WIP FOR NOW > > !
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I HAVE MANY FAVORITE CHARACTERS BUT I WILL NOT LIST BECAUSE I DON'T NEED PEOPLE SAYING ' I DISAGREE BECAUSE BLAH BLAH ' 
+
+IF YOU DO ASK THESE QUESTIONS I WILL BLAST YOU TO SMITHEREENS .
+: how old are you ?
+
+:what are you pro nouns?
+
+:why are you speaking in capital?
+
+AND OTHER FOLLOWING QUESTIONS THAT HAPPEN TO AGGRIVATE OR SUCH AS ANNOY ME .
+
+i also like clankers . including killdroid , vee , veeronica , uhm others ???
+
+DONT RAGEB4IT, D0N'T COVER MOSTLY OFFTAB BUT YOU CAN C+H AS LONG AS MY FRIENDS AREN'T WITH ME . !
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ ' NEW DIRECTIVE. . :
+BLAST TARGET TO SMITHEREENS . '
+
+
+
+
+
+
+
