@@ -19,14 +19,8 @@ i also like clankers . including killdroid , vee , veeronica , uhm others ???
 
 DONT RAGEB4IT, D0N'T COVER MOSTLY OFFTAB BUT YOU CAN C+H AS LONG AS MY FRIENDS AREN'T WITH ME . !
 
-
-
-
-
-
-
-
-
+btw , i made a skin based of a video of chance and mafioso don't attack me beacuse you don't like the song or its weird its just a reference to a song called '
+love you like an alcoholic ' so pls spare me the critizism/ if thats a word lol.
 
 
 
