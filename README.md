@@ -1,6 +1,6 @@
 HI , THERE. ! 
 WELCOME TO KILLDR0ID'S/ SEBBY'Z READ ME. !
-
+i am a genderfluid and nonbinary ok.?
 
 WE DON'T HAVE MUCH TO PUT SO IN A WIP FOR NOW > > !
 
