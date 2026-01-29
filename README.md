@@ -1,37 +1,13 @@
-HI , THERE. ! 
-WELCOME TO KILLDR0ID'S/ SEBBY'Z READ ME. !
-i am a genderfluid and nonbinary ok.?
 
-WE DON'T HAVE MUCH TO PUT SO IN A WIP FOR NOW > > !
+hello there ,  i am the keen observer , or as others like mutuals call me sebbyz , 
+i go by many names infact here is some : elliot , sebbyz , scag , killdroid , keen  observer.
+i used to go y cinna but that was 2 years ago.
 
-I HAVE MANY FAVORITE CHARACTERS BUT I WILL NOT LIST BECAUSE I DON'T NEED PEOPLE SAYING ' I DISAGREE BECAUSE BLAH BLAH ' 
+i am a minor so , 20+ and 18 year olds unless ik you , dni
 
-IF YOU DO ASK THESE QUESTIONS I WILL BLAST YOU TO SMITHEREENS .
-: how old are you ?
+c+H if no one is with me , specifically friends 
 
-:what are you pro nouns?
-
-:why are you speaking in capital?
-
-AND OTHER FOLLOWING QUESTIONS THAT HAPPEN TO AGGRIVATE OR SUCH AS ANNOY ME .
-
-i also like clankers . including killdroid , vee , veeronica , uhm others ???
-
-DONT RAGEB4IT, D0N'T COVER MOSTLY OFFTAB BUT YOU CAN C+H AS LONG AS MY FRIENDS AREN'T WITH ME . !
-
-btw , i made a skin based of a video of chance and mafioso don't attack me beacuse you don't like the song or its weird its just a reference to a song called '
-love you like an alcoholic ' so pls spare me the critizism/ if thats a word lol.
-
-
-
-
-
-
-
-
- ' NEW DIRECTIVE. . :
-BLAST TARGET TO SMITHEREENS . '
-
+don't force me to say hi to your friends if i don't feel comfortable to do so ,  or i will leave you .
 
 
 
