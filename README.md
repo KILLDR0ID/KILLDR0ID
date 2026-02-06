@@ -15,3 +15,4 @@ mostl offtab , so if you wanna cuddle with me you can .
  yes , im genderfluid so i dont mind if you call me he or her , 
 
 
+bro i used to be obsessed with this silly lil fishy guy
