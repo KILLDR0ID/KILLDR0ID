@@ -15,4 +15,4 @@ mostl offtab , so if you wanna cuddle with us you can .
  yes , we are genderfluid so we dont mind if you call us he or her , 
 
 
-bro we used to be obsessed with this silly lil fishy guy
+bro we used to be obsessed with this silly lil fishy guy trust us
